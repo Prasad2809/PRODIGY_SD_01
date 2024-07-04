@@ -15,11 +15,9 @@ Feel free to explore the repository, provide feedback, or connect with me for fu
 
 # Contact Information
 For any inquiries or collaborations, feel free to reach out:
-
-Email: prasadshinde0428@gmail.com
-LinkedIn: https://www.linkedin.com/in/prasad-shinde-b0167328b?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BzoyfsKRrROm3raYhc71HFg%3D%3D
+* Email: prasadshinde0428@gmail.com
+* LinkedIn: https://www.linkedin.com/in/prasad-shinde-b0167328b?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BzoyfsKRrROm3raYhc71HFg%3D%3D
 
 Reference
 You may visit my LinkedIn post to refer.
-
-Link: https://www.linkedin.com/posts/prasad-shinde-b0167328b_hello-everyone-i-have-completed-task-1-activity-7214178659941679104-iioG?utm_source=share&utm_medium=member_desktop
+* Link: https://www.linkedin.com/posts/prasad-shinde-b0167328b_hello-everyone-i-have-completed-task-1-activity-7214178659941679104-iioG?utm_source=share&utm_medium=member_desktop
